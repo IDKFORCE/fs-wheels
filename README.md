@@ -1,7 +1,7 @@
 ## FiveM Ready Wheels
 
 ```My Discord```
-- [Discord](https://discord.gg/6kJ5ubDEWE)
+- [Discord](https://discord.gg/UFng7DWnWP)
 
 
 ## All Wheels Where Found In Gta5 MODs [link](https://www.gta5-mods.com/all/tags/wheels/)
